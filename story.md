@@ -1,3 +1,2 @@
 "Once upon a time, a alien and a cowboy met in a coffee shop..."
-"The cowboy eyed the alien's blaster, and the alien wondered what the cowboy was
-hiding underneath his hat."
+"The cowboy eyed the alien's blaster, unaware that the alien was moments away from using said blaster to blow him to kingdom come whilst shouting something completely incoherent"
